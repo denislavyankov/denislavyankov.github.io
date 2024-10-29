@@ -1,2 +1,1 @@
-follow me on TikTok 
-@not.doss
+Made by Denis Yankov
